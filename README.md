@@ -16,8 +16,8 @@
 
 5200411045 – Bayu Octabryan Nugraha   
 
-5200411275 - Abdul HarisAs'ari        
+5200411275 - Abdul HarisAs'ari        (BAB 2 & BAB 3)
 
-5200411365 - Galyleo Ilham Setyaka    
+5200411365 - Galyleo Ilham Setyaka    (BAB 1)
 
 5200411502 - Angger anoraga S. M.     
