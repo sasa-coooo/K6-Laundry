@@ -12,6 +12,8 @@
 
 #
 
+2. TUGAS SCRUM  :
+
 5200411045 – Bayu Octabryan Nugraha   
 
 5200411275 - Abdul HarisAs'ari        
