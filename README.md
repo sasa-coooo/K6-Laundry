@@ -2,7 +2,7 @@
 
 1. TUGAS RAD  :
 
-5200411045 – Bayu Octabryan Nugraha   (Kebutuhan Informasi & Kebutuhan Antarmuka)
+5200411045 – Bayu Octabryan Nugraha   (Kebutuhan Informasi & Pembentukan Aplikasi)
 
 5200411275 - Abdul HarisAs'ari        (Pendahuluan)
 
