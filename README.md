@@ -1,7 +1,5 @@
 # K6-Laundry
 
-#
-
 1. TUGAS RAD  :
 
 5200411045 – Bayu Octabryan Nugraha
